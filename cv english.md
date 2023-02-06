@@ -2,6 +2,7 @@
 ## base information
 ### male, 31 years old, was born : 14-mar-1991
 ### +7 (912) 0534801 — telegram, whatsapp
+### +381 06 77410406
 ### alekseychernitsyn@gmail.com
 ### Skype: Tpy_rBo3Db
 ### LinkedIn: http://linkedin.com/https://www.linkedin.com/in/aleksei-chernitcyn-1a6071121/
